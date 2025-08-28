@@ -49,7 +49,7 @@ Pintu Baja Polos Di Boven Digoel, Pintu Baja Rumah Di Fakfak, Pintu Baja Ruang T
 ---
 
 ## Pintu Baja Fortress
-![Pintu Baja Fortress](PB16.JPG)
+![Pintu Baja Fortress](PB17.JPG)
 
 ---
 
@@ -66,6 +66,7 @@ Klik tombol di bawah untuk langsung terhubung via WhatsApp:
 
 ## 🔍 Tags
 merkpintubajaterbaikdibiaknumfor, pintubajaantikaratdiintanjaya, pintubajaantimalingdiyahukimo, agenpintubajafortressditolikara, agenpintubajadibovendigoel
+
 
 
 
